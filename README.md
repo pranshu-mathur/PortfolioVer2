@@ -9,4 +9,4 @@
 
 The website can be viewed at https://ay2912.github.io/My-Portfolio/
 
-Please hit me up at ay2912@srmist.edu.in if you have any feedback or ideas for the website. Leave a :star: &nbsp;if you like it!
+Please hit me up at pm3022@srmist.edu.in if you have any feedback or ideas for the website. Leave a :star: &nbsp;if you like it!
